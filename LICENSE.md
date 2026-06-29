@@ -1,4 +1,4 @@
-# 
+# Oficial 30+ AI Projects at UQAC preajustes. Con ética de la IA y reconocimiento de imágenes — optimizado para el máximo rendimiento.
 
 
 
